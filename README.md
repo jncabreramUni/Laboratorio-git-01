@@ -6,3 +6,5 @@ Soy Juan Nicolás Cabrera Miranda, estudiante de la carrera de ing. de sistemas,
 trabajo en un restaurante como mesero.
 
 me gustan los videojuegos, animes, y algunos mangas, mi favorito actualmente es el Shattered pixel dungeon.
+
+muchos me dicen que no aparento la edad que tengo pero realmente no se si es muy malo o muy bueno
